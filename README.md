@@ -6,7 +6,7 @@
  　　 $${\color{#e5e8a2}↑}$$
   
 
-</div>
+
 
 <img src="https://i.ibb.co/gZ2zX0dP/tumblr-c6f4c531a844c1e8cd715ee76dfd597f-94677392-1280.png" width="340" align="left" alt="dreeee">
  
@@ -22,7 +22,7 @@
     </tr>
   </table>
 
-  <img src="https://i.ibb.co/gMj89KvB/output-onlinepngtools.png" width=543 align="center" alt="dreeee">
+  <img src="https://i.ibb.co/gMj89KvB/output-onlinepngtools.png" width=340 align="center" alt="dreeee">
 
   <div align="center">
 
