@@ -6,7 +6,7 @@
  　　 $${\color{#e5e8a2}↑}$$
 
 
-<img src="https://i.ibb.co/xKLTy7gD/tumblr-5a4692fa6dbedb057afc399ccd918e7b-cbb7f6b0-1280.png" width="340" align="left" alt="dreeee">
+<img src="https://64.media.tumblr.com/5a4692fa6dbedb057afc399ccd918e7b/a502d63b9aa9a157-db/s1280x1920/cbb7f6b0e9e88553db874c745cada33bcea84521.pnj" width="340" align="left" alt="dreeee">
  
 <br>
 <br>
