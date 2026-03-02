@@ -13,10 +13,12 @@
     </tr>
   </table>
 
-  <img src="https://i.ibb.co/gMj89KvB/output-onlinepngtools.png" width=575 align="left" alt="dreeee">
 
-![](https://komarev.com/ghpvc/?username=your-github-username&style=flat-square)
-  ser
+
+  <img src="https://i.ibb.co/gMj89KvB/output-onlinepngtools.png" width=575 align="center" alt="dreeee">
+  
+
+![](https://komarev.com/ghpvc/?username=mewtuna&color=af9e4c&style=for-the-badge&base=4644&label=Humans) 
   
   <div align="center">
   
