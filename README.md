@@ -22,7 +22,7 @@
     </tr>
   </table>
 
-  <img src="https://i.ibb.co/gMj89KvB/output-onlinepngtools.png" width=575 align="center" alt="dreeee">
+  <img src="https://i.ibb.co/gMj89KvB/output-onlinepngtools.png" width=570 align="center" alt="dreeee">
 
   <div align="center">
 
@@ -30,18 +30,3 @@
 $${\color{#e5e8a2}⏔⏔}$$ 　　   
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=false&theme=novatorem&show_offline=true&background_color=c9c15e&interchange=false&profanity=false&bar_color=8b894c&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&redirect=true)
-
-<!--
-**mewtuna/mewtuna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
