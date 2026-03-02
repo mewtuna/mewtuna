@@ -16,13 +16,13 @@
     <tr>
       <td>
         <br>
-       　　　　  $${\color{#b19e48} ✧ }$$ $${\color{#e5e8a2} 𑜷}$$ $${\color{#ccbe5c} 𝓇𝑒𝒾}$$ <sup> $${\color{#e5e8a2} ❀}$$ </sup> $${\color{#ccbe5c} 𝓭𝓻𝓮𝓪}$$　　　 $${\color{#e5e8a2}⏔⏔}$$ 　　　 $${\color{#ccbe5c}𝒽𝑒}$$ $${\color{#e5e8a2} /}$$ $${\color{#b19e48} 𝓈𝒽𝑒}$$ $${\color{#e5e8a2} / }$$ $${\color{#ccbe5c}𝓉𝒽𝑒𝓎}$$ <br>
+       　　　　  $${\color{#b19e48} ✧ }$$ $${\color{#e5e8a2} 𑜷}$$ $${\color{#ccbe5c} 𝓇𝑒𝒾}$$ <sup> $${\color{#e5e8a2} ❀}$$ </sup> $${\color{#ccbe5c} 𝓭𝓻𝓮𝓪}$$　　 $${\color{#e5e8a2}⏔⏔}$$ 　　 $${\color{#ccbe5c}𝒽𝑒}$$ $${\color{#e5e8a2} /}$$ $${\color{#b19e48} 𝓈𝒽𝑒}$$ $${\color{#e5e8a2} / }$$ $${\color{#ccbe5c}𝓉𝒽𝑒𝓎}$$ <br>
          <br>
       </td>
     </tr>
   </table>
 
-  <img src="https://i.ibb.co/gMj89KvB/output-onlinepngtools.png" width=570 align="center" alt="dreeee">
+  <img src="https://i.ibb.co/gMj89KvB/output-onlinepngtools.png" width=543 align="center" alt="dreeee">
 
   <div align="center">
 
