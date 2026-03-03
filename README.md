@@ -5,8 +5,6 @@
 [![flower](https://i.ibb.co/fVHxncBc/tumblr-1a44170c4e46524ea62377d7f1fccc60-36259302-75.webp)](https://www.tumblr.com/kodaswrld/760757031909146624/lace-dividers)　　  
  　　 $${\color{#e5e8a2}↑}$$
 
-$${\color{e5e8a2} alt: fluff3ypupp3y}$$
-
 <img src="https://64.media.tumblr.com/5a4692fa6dbedb057afc399ccd918e7b/a502d63b9aa9a157-db/s1280x1920/cbb7f6b0e9e88553db874c745cada33bcea84521.pnj" width="340" align="left" alt="dreeee">
  
 <br>
@@ -29,3 +27,17 @@ $${\color{e5e8a2} alt: fluff3ypupp3y}$$
 $${\color{#e5e8a2}⏔⏔}$$ 　　   
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=false&theme=novatorem&show_offline=true&background_color=c9c15e&interchange=false&profanity=false&bar_color=8b894c&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&redirect=true)
+
+</div>
+
+$${\color{e5e8a2} alt: fluff3ypupp3y}$$
+<details>
+<summary> <td>$${\color{#e5e8a2}\verb|(..◜ᴗ◝..)|}$$</td> </summary>
+
+<div align="center">
+
+$${\color{#e5e8a2}𝓂𝑒　𝒶𝓃𝒹　𝓂𝓎}$$ $${\color{#ccb35c}𝒽𝓊𝓈𝒷𝒶𝓃𝒹}$$
+
+<img src="https://i.pinimg.com/736x/59/42/73/59427321c22d411db7273e0499cd6503.jpg" align="center" width="340">
+
+</details>
