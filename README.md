@@ -4,7 +4,7 @@
 
 　 　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=false&theme=novatorem&show_offline=false&background_color=787878&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&redirect=true)
 
-socials: ⏔ [guns](https://guns.lol/mewtuna) ⏔ [prns](https://en.pronouns.page/@WonderfullyNene) ⏔ [ata](https://chickenbootyweezer.atabook.org/) ⏔ [roblox](https://www.roblox.com/users/3939267694/profile) ⏔
+socials: ⏔ [guns](https://guns.lol/mewtuna) ⏔ [prns](https://en.pronouns.page/@WonderfullyNene) ⏔ [ata](https://chickenbootyweezer.atabook.org/) ⏔ [roblox](https://www.roblox.com/users/3939267694/profile) ⏔ [twt](https://x.com/r_isenII) ⏔
 
 *This Github is mainly for Ponytown, but I also got it so I could follow my buddies on here and support them!* 
 
