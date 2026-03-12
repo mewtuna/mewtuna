@@ -12,7 +12,7 @@ socials: ⏔ [guns](https://guns.lol/mewtuna) ⏔ [prns](https://en.pronouns.pag
 
 *I'm fine with c+h or w2i! though I may be nonresponsive.*
 
-*I'm into things like Homestuck, Minecraft but the protagonist is a speedrunner(arg), Reol, Gachiakuta, TGCF, and some other fandoms. I honestly forgot most of my fandoms but I know I'm in a lot!*
+*I'm into things like Homestuck, Minecraft but the protagonist is a speedrunner(arg), Sans AUs, Gachiakuta, TGCF, and some other fandoms. I honestly forgot most of my fandoms but I know I'm in a lot!*
 
 *I really like Dave Strider and Nepeta, and Andre from the listed fandoms! (Dave Strider is my fav...)*
 
