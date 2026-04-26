@@ -5,9 +5,7 @@
 
  $${\color{#f8dbe8}𐔌   .  ⋮}$$ [ata](https://pinkbxtch.atabook.org/) $${\color{#e46da1}৻ꪆ}$$ [rentry](https://rentry.co/ryu_suu)  $${\color{#f8dbe8}⋮  ֹ   ₊ ꒱}$$ <br>
 
-<img src=https://i.ibb.co/HTjvG0jG/tumblr-c098eace60ab4258fc728e45ef6a12b3-b432c33d-400.png>
-
-
+$${\color{#f8dbe8}───୨ৎ───}$$
  
 
  
@@ -30,8 +28,9 @@
    
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=true&theme=novatorem&show_offline=false&background_color=f9cfe6&interchange=true&profanity=false&bar_color=e46da1&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&redirect=true) <br>
 
+ <img src=https://i.ibb.co/HTjvG0jG/tumblr-c098eace60ab4258fc728e45ef6a12b3-b432c33d-400.png width=500>
+
  <img src=https://i.ibb.co/MDN5yNWP/tumblr-8855b0769ed5c87475f71e124a1aab9d-f0f6f443-400.webp width=1000>
 
   <img src=https://i.ibb.co/Gf2Nvd8f/tumblr-da80d082fbc53ca569e6c5f83c701bd2-a3eee9c5-2048.png>
-
 
